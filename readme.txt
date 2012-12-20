@@ -1,1 +1,1 @@
-This is the digital version of Moon.
+This is the digital version of Taicho.
